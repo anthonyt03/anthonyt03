@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @anthonyt03
+- 🌱 I’m currently learning: computer science
+- 📫 How to reach me: anthonytran0814@gmail.com
